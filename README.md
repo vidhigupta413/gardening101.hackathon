@@ -1,1 +1,0 @@
-# gardening101.hackathon
